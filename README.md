@@ -1,1 +1,1 @@
-# Duru-Deniz.github.io
+# Görkem Tanağardıgil
